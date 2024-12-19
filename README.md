@@ -13,4 +13,4 @@ Telegram: `t.me/moxiu_01`
 
 Twitter/X: [moxiu097](https://x.com/moxiu097)
 
-XDA (forums): [moxii_75](https://xdaforums.com/moxii_75.12920105/)
+XDA (forums): [moxiu](https://xdaforums.com/m/moxiu.13013581/)

@@ -1,5 +1,10 @@
-### i make games
+## Hi👋
 
+### About me
+- i mostly make games.
+- but i also explore making gui and cli applications!
+
+---
 
 ### Contact
 
